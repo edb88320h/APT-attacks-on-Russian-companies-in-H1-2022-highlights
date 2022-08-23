@@ -1,1 +1,0 @@
-# APT-attacks-on-Russian-companies-in-H1-2022-highlights
